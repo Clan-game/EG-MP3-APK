@@ -1,5 +1,5 @@
-# Game Changer 5 Cricket APK 2.0 Free Download For Android 2024
-# Download Free APK: [Game Changer 5 Cricket APK](https://apkhihe.net/eg-mp3/)
+# EG MP3 Free Fire APK 3.6 Download Latest Version For Android
+# Download Free APK: [EG MP3 Free Fire APK](https://apkhihe.net/eg-mp3/)
 # What is EG MP3 App?
 EG MP3 is a multifunctional mobile application that enhances how users enjoy music and games. The app is not just a traditional music player; it allows you to manage your music library efficiently, play songs offline, and even integrate playlists with games like Free Fire for an immersive experience. Whether you're a casual gamer or a music enthusiast, EG MP3 combines simplicity and functionality to deliver a seamless experience.
 
